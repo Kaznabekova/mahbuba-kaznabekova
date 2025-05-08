@@ -53,7 +53,8 @@
 Если у вас есть вопросы, предложения или интересные проекты — пишите!
 
 📧 Email: [kaznabekobamahbuba98@gmail.com]  
-🌐 GitHub: [http://www.linkedin.com/in/mahbuba-kaznabekova-21ba78363]  
+🌐 GitHub: [https://github.com/Kaznabekova/mahbuba-kaznabekova]  
+🌐linkedin:[http://www.linkdin.com/in/mahbuba-kaznabekova-21ba78363]  
 📍 Локация: Баткен, Кыргызстан | 
 
 ---
